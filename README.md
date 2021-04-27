@@ -1,0 +1,2 @@
+# newbies
+🧭 Newbies page
